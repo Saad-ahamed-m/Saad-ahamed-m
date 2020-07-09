@@ -1,3 +1,4 @@
-# Mastigram
-Know about me in a way i like
+# Saad Ahamed M
+Technology is my passion
+My profile will help you know that !
 
